@@ -1,6 +1,6 @@
 # My Daily Poems
 
-![poem-count](https://img.shields.io/badge/poem-count--003-blue)
+![poem-count](https://img.shields.io/badge/poem--count-003-yellow)
 
 These are some rhymes I cooked up from my phone, in memory of Dan Schiffman's Git for Poets series. I remembered it's not just code that gets pushed on here.
 
