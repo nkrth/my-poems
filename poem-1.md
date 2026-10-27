@@ -11,6 +11,5 @@ As of little pages skipping, landing right upon my floor.
 
 Only this and nothing more.
 
-- @nkrth
 
 
