@@ -1,11 +1,11 @@
 Passing by the City on a Summer's Morning,
 With golden light, the busy street adorning.
 
-I have gone many a hunn'it miles without sleep, 
+I have seen many a hunn'it miles without sleep, 
 Enough to know the story's shallow deep.
 
 With joyous steps where sunlit paths unfold, 
-I share in stories that had awaited to be retold.
+I share in stories that awaited to be retold.
 
 A caller rings, I put them on hold,
 I must not wimper for they think I am bold.
@@ -23,7 +23,7 @@ May help along this guy's digest.
 The skies themselves are of varied mood.
 All anyone asks is "Who is this Dude?"
 
-Heart on sleeve with a scheme to  daydream,
+Heart on sleeve with a scheme to daydream,
 is a soul capturing the sunset's beams
 and carrying forward like a meme,
 a hope that one does profit Team.
@@ -44,4 +44,4 @@ is not endless but may it live on in text.
 A good night is said and dusted off, 
 to have dreams as old as Dave Hasselhoff.
 
-Beep beep, Coyote. 
+Beep beep, Coyote.
